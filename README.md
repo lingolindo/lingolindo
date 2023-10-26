@@ -1,2 +1,4 @@
 **salve quebrada** 👋
-Então meu nome e LingoLingo eu sou dependente emocional do **timão**... é fd 😢😢😢
+*Então meu nome e LingoLingo
+*Eu sou dependente emocional do **timão**...
+*É fd 😢😢😢      
